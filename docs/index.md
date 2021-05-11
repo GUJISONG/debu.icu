@@ -1,1 +1,1 @@
-fuck
+peace and love🤗
